@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning  python 
 - 💞️ I’m looking to collaborate on Linh 
 - 📫 How to reach me make friend ?
-- 😄 Pronouns: like a Mandarin
+- 😄 Pronouns: like a .I don't no=)))
 - ⚡ Fun fact: I am a...special for me is best friend
 
 <!---
